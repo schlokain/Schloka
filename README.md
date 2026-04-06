@@ -23,9 +23,13 @@ Mumbai | Delhi | Bangalore | Kolkata | Hyderabad | Chennai | Pune | Ahmedabad | 
 ## Connect With Us
 
 - **Website:** [schloka.in](https://schloka.in)
-- **Twitter/X:** [@schloka](https://twitter.com/schloka)
-- **Telegram:** [Schloka](https://t.me/schloka)
-- **Email:** contact@schloka.in
+- **Twitter/X:** [@schloka](https://x.com/SchlokaIn)
+- **Youtube:** [@schloka](https://www.youtube.com/@schloka)
+- **Tumblr:** [@schloka](https://www.tumblr.com/schlokain)
+- **Pinterest:** [@schloka](https://in.pinterest.com/schloka/)
+- **Reddit:** [@schloka](https://www.reddit.com/user/Grand_Hovercraft_301/)
+
+- 
 
 ---
 
