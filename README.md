@@ -29,7 +29,6 @@ Mumbai | Delhi | Bangalore | Kolkata | Hyderabad | Chennai | Pune | Ahmedabad | 
 - **Pinterest:** [@schloka](https://in.pinterest.com/schloka/)
 - **Reddit:** [@schloka](https://www.reddit.com/user/Grand_Hovercraft_301/)
 
-- 
 
 ---
 
